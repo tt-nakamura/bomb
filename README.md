@@ -11,7 +11,7 @@ On October, Shanghai fell. As Japanese troops got close to the capital city Nanj
 signs of world war became gradually apparent.
 
 Just at that time, I wrote a short article entitled "Bows and Guns."
-It was published in "Tokyo Aashi" on November 1937.
+It was published in "Tokyo Asahi" on November 1937.
 My clippings read:
 
 > In a war between bows and guns, the latter would win.
@@ -230,7 +230,7 @@ One must not misunderstand that our aim is to create new weapons
 which are stronger than theirs.
 It was rather fortunate that we Japanese were unable to make an atomic bomb during the war.
 I wrote "hopefully, nuclear energy will never be used to make weapons"
-in my article eight years ago. Now I hope so too.
+in my article eight years ago. Now I still hope so.
 When I saw the cruelty of the atomic bombs, 
 I felt that we humankind have gone too far on the way of scientific progress.
 
